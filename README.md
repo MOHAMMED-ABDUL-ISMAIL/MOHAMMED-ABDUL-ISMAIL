@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MOHAMMED-ABDUL-ISMAIL
+- 👋 Hi, I’m @ISMAIL
 - 👀 I’m interested in learning new technologyes.
 
 
